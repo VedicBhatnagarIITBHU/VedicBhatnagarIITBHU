@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @VedicBhatnagarIITBHU
+- 👀 I’m interested in research
+- 🌱 I’m currently learning web dev
+- 📫 How to reach me ...email me @ vedic.bhatnagar.mst23@iitbhu.ac.in
+- 😄 Pronouns: he/him/his
